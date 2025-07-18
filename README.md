@@ -1,2 +1,2 @@
-# Amor-Beauty-Co.
+# Amor-Beauty-Co
 My Business Website
